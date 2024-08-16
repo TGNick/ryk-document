@@ -18,4 +18,4 @@ https://cdn.discordapp.com/attachments/1273946853062479903/1274032025208361000/i
 
 ## he's dumb af 
 
-https://media.discordapp.net/attachments/1273682567157252118/1274033079060529274/Screen_Recording_20240816_115137_Discord.mp4?ex=66c0c744&is=66bf75c4&hm=90ce56adfca8c3c47c2fac7408d92b58d2362ceb603443887505f0b734ec1e91&
+https://cdn.tgnick.com/Screen_Recording_20240816_115137_Discord.mp4
