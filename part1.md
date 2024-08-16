@@ -1,0 +1,7 @@
+#skull
+https://cdn.discordapp.com/attachments/1273946853062479903/1273947609882427484/image0.jpg?ex=66c077aa&is=66bf262a&hm=c77110e
+14df7a713067aaf85c6ee53e69d6efdaf1b38f99e5b8cdc5524b8a43e&
+
+he speaks yapanese
+https://cdn.discordapp.com/attachments/1273946853062479903/1273947610129895475/Screenshot_20240816_111045_com_discord_MainActivity.jpg?ex=66c077ab&is=66bf262b&hm=01d40fc9a08
+66eaedc2ee5253de13573bf50b5151a1cbc3d1c619b21847d6aff&
